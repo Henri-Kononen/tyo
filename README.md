@@ -1,2 +1,2 @@
-HENRI KÖNÖNEN, VEERA KARVONEN, HANS SELENIUS
+Henri Könönen, Veera Karvonen, Hans Selenius
 ===
